@@ -1,0 +1,1 @@
+# 932002_maryasov_artem_lab10
